@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @999bread
+- 👀 I’m interested in software engineering 
+- 🌱 I’m currently learning the basics of comuter science
+- 📫 You can reach out to me through Instagram @999_bread
+-    Thank you and its nice to meet you all!!!
